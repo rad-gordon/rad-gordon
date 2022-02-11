@@ -1,4 +1,4 @@
-### Hi there im Rad 👋
+### Ayo Rad here 👋
 
 
 
